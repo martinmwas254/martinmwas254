@@ -1,3 +1,9 @@
+# 🚀Martin(comic San)👨‍💻
+
+**`Digital Craftsman (Developer/Student)`**
+
+
+
 I'm a junior developer with a goal to use code to remake the world and to realise my creative and imaginative visions through the creation of a vibrant tech ecosystem that benefits both myself and other like-minded enthusiasts. Fed by coffee and unwavering enthusiasm, I'm honing my craft via ongoing education in order to unleash my superpowers and use code to solve the difficult issues that humanity faces!
 
 
